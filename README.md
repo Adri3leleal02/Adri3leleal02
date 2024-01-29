@@ -10,6 +10,6 @@ Sobre Mim
 Contato
 📫 Estou sempre aberto a novas oportunidades e colaborações. Se você está interessado em discutir projetos, ideias ou apenas bater um papo sobre tecnologia, sinta-se à vontade para entrar em contato por meio do meu LinkedIn:https://br.linkedin.com/in/adriele-leal-8340a5289
 
-Agradecimento
+
 🙏 Agradeço por visitar meu perfil! Espero que você encontre algo interessante aqui. Vamos criar coisas incríveis juntos! 🚀
 
